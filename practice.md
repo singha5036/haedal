@@ -14,3 +14,4 @@
    4. GT :  7200만원부터
 
 >사전계약: https://worldwide.kia.com/kr/ev6/reserve
+
